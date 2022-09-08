@@ -11,4 +11,4 @@ On 31 October 2019, Jammu and Kashmir state was bifurcated into 2 new Union Terr
 Please feel free to use it for your personal purposes.
 
 By- Anuj Tiwari
-Email: anujtiwari.spatial@gmail.com
+Email: anujtiwari.iitr@gmail.com
